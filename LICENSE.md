@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Ulysses for macOS tool with Ulysses for macOS vip Tool: offline access & focus mode. Featuring offline access and focus mode, it's the best choice for macOS users.
 
 
 
